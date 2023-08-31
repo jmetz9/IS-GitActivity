@@ -1,4 +1,4 @@
-Justin A Molenda Jr
-Hobby: Video Games
-A good game to try: Terraria
-Favorite Color: Green
+not Justin A Molenda Jr
+Hobby: Video Games, doing stuff
+A good game to try: Terraria, and minecraft
+Favorite Color: Red
