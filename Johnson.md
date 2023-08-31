@@ -1,2 +1,2 @@
-Name: Tyler Johnson
-Hobbies: Going up north and fishing/playing videogames
+Name: definitely not Tyler Johnson
+Hobbies: Going up north and fishing/playing videogames and crime
