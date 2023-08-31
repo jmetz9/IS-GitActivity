@@ -1,4 +1,11 @@
 Name: Josh Metz
 Hobby: Video Games
 
-Tyler Johnson: I play videogames too, Minecraft is my favorite!
+
+
+
+
+
+Note: Justin was here as well as in Johnson.md
+(This is more graffiti)
+
